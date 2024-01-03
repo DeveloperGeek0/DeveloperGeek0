@@ -15,7 +15,7 @@
 - ❓ Ask me about anything related to Web-Development,Ui Designer,Ai  
   
 
-- ⚡Fun fact: I have no friends hehe:)  
+- ⚡Fun fact: I have no Friends :}
   
 
 <br/>  
